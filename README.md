@@ -7,4 +7,4 @@
 
 ![test](https://user-images.githubusercontent.com/88240177/148333575-6ca931a9-db21-459b-baba-f37e7c5134f7.png)
 
-<img width="975" alt="스크린샷 2022-01-14 오전 1 09 24" src="https://user-images.githubusercontent.com/88240177/149367508-876c969e-537a-47fc-88a1-87e04e4f4e4c.png">
+![무제](https://user-images.githubusercontent.com/88240177/149367748-945d5170-695b-40f7-8ce3-1c9f5487fcd4.png)
